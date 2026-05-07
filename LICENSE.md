@@ -1,4 +1,4 @@
-
+Enhance Notion for macOS with Notion for macOS best Script: quick search & OCR scanning, the #1 script. Includes quick search and OCR scanning for a smoother experience.
 
 
 
